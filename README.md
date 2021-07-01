@@ -4,3 +4,6 @@
 #### https://fairy-video.com/
 #### or
 #### https://www.wchatools.com/
+
+## App下载地址
+#### https://fairy-video.com/app/
